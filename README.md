@@ -1,1 +1,1 @@
-file:///C:/Users/IVAN/Desktop/hoja%20de%20vida%20Web/index2.html
+[![teoria-general-de-sistemas-1.png](https://i.postimg.cc/C58DbWRt/teoria-general-de-sistemas-1.png)](https://postimg.cc/MfWvS3bb)
